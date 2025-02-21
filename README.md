@@ -2,7 +2,7 @@ Society’s obsession with the death penalty for crimes like rape is less about 
 
 And why do we only rage over crimes we can *see*? Mental torture—gaslighting, emotional abuse, psychological warfare—destroys people just as brutally. But because there’s no blood, no headlines, society shrugs. Trauma isn’t a competition, but we treat it like one. Newsflash: both are valid. Both deserve more than lazy, one-size-fits-all “solutions” like the death penalty.  
 
-Let’s get one thing straight: Society’s obsession with “sexual purity” is a garbage myth invented to police bodies, not protect them. The idea that survivors of assault should feel ashamed because some imaginary “purity” was “stolen”? That’s not just toxic—it’s *illogical*. Your self-respect isn’t some fragile trophy tied to what someone else did to you. It’s rooted in who you *are*—your courage, your values, how you treat others.  
+Let’s get one thing straight: Society’s obsession with “sexual purity” is a garbage myth invented to police bodies, not protect them. The idea that survivors of assault feel ashamed because some imaginary “purity” was “stolen”? That’s not just toxic—it’s *illogical*. Your self-respect isn’t some fragile trophy tied to what someone else did to you. It’s rooted in who you *are*—your courage, your values, how you treat others.  
 
 We don’t blame a mugging victim for “losing” their wallet. We don’t shame someone for surviving a car crash. So why do we act like surviving violence against your body diminishes your worth? Newsflash: Your dignity isn’t stored between your legs. It’s in your integrity, your resilience, your ability to keep going even when the world tries to break you.  
 
