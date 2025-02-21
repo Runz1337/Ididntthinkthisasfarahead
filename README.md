@@ -12,7 +12,7 @@ Society’s fixation on sexual purity isn’t just outdated—it’s dangerous. 
 
 But nah, instead of fixing the systems that create predators—like toxic masculinity, poor mental health resources, or glorified violence—we’d rather play judge, jury, and executioner. It’s easier to hashtag #DeathToMonsters than to fund therapy for survivors or teach consent in schools. We’re so warped by revenge fantasies that we ignore real healing.  
 
-Restorative justice? Now *that’s* radical. Make perpetrators actually repair what they broke—pay for therapy, fund shelters, face survivors and hear how they’ve ruined lives. Let survivors define what justice looks like, not some ancient legal system that thinks vengeance = closure.  
+What seems more radical is restorative justice - Make perpetrators actually repair what they broke—pay for therapy, fund shelters, face survivors and hear how they’ve ruined lives. Let survivors define what justice looks like, not some ancient legal system that thinks vengeance = closure.  
 
 And if we’re talking about “what’s natural,” let’s get real: humans evolved to protect the vulnerable, not blame them. Society’s focus on punishment over prevention, shame over support? That’s not evolution—it’s regression. We’ve got the tools to do better: education, empathy, rehab. But we’re too busy chasing symbolic wins to actually fix anything.  
 
