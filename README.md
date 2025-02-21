@@ -14,6 +14,6 @@ But nah, instead of fixing the systems that create predators—like toxic mascul
 
 What seems more radical is restorative justice - Make perpetrators actually repair what they broke—pay for therapy, fund shelters, face survivors and hear how they’ve ruined lives. Let survivors define what justice looks like, not some ancient legal system that thinks vengeance = closure.  
 
-And if we’re talking about “what’s natural,” let’s get real: humans evolved to protect the vulnerable, not blame them. Society’s focus on punishment over prevention, shame over support? That’s not evolution—it’s regression. We’ve got the tools to do better: education, empathy, rehab. But we’re too busy chasing symbolic wins to actually fix anything.  
+And if we’re talking about “what’s natural,” let’s get real: humans evolved to protect the vulnerable, not blame them. Society’s focus on punishment over prevention,That’s not evolution—it’s regression. We’ve got the tools to do better: education, empathy, rehab. But we’re too busy chasing symbolic wins to actually fix anything.  
 
 Bottom line: The death penalty is a Band-Aid on a bullet wound. Real justice means rebuilding lives, not ending them. It’s time to drop the performative outrage and start doing the work. Survivors deserve more than empty gestures. They deserve a world that heals, not just punishes.
