@@ -10,8 +10,6 @@ If anyone should feel shame, it’s the people who *choose* to harm others—the
 
 Society’s fixation on sexual purity isn’t just outdated—it’s dangerous. It silences survivors, excuses predators, and warps our sense of humanity. Let’s drop the medieval mindset. Your body isn’t a temple to be “defiled.” It’s yours. What happened to it doesn’t define you. What defines you is how you rise, rebuild, and refuse to let anyone else write your story.  
 
-Stop letting ancient myths dictate modern worth. Hold your head high. The only thing that *ever* deserves shame is a rotten character—not surviving someone else’s crime.
-
 But nah, instead of fixing the systems that create predators—like toxic masculinity, poor mental health resources, or glorified violence—we’d rather play judge, jury, and executioner. It’s easier to hashtag #DeathToMonsters than to fund therapy for survivors or teach consent in schools. We’re so warped by revenge fantasies that we ignore real healing.  
 
 Restorative justice? Now *that’s* radical. Make perpetrators actually repair what they broke—pay for therapy, fund shelters, face survivors and hear how they’ve ruined lives. Let survivors define what justice looks like, not some ancient legal system that thinks vengeance = closure.  
